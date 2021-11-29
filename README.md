@@ -8,4 +8,4 @@ Alumnos:
 Trejo Evangelista Diego Alberto
 Lira Hernandez Fidel Enrique
 
-Link del video:  https://drive.google.com/drive/folders/1pnIpUH1yMAlxbtlUQbODyVNRIRYC56eh?usp=sharing
+Link del video:  https://drive.google.com/file/d/118vvFb3EZD18cN_l93ebFGGRzE6ofbH2/view?usp=sharing
